@@ -2,36 +2,49 @@
 >8 Finally, all of you, be like-minded, be sympathetic, love one another, be compassionate and humble. 9 Do not repay evil with evil or insult with insult. On the contrary, repay evil with blessing, because to this you were called so that you may inherit a blessing. 10 For, “Whoever would love life and see good days
 must keep their tongue from evil and their lips from deceitful speech. 11 They must turn from evil and do good; they must seek peace and pursue it. 12 For the eyes of the Lord are on the righteous and his ears are attentive to their prayer, but the face of the Lord is against those who do evil.”[a] 13 Who is going to harm you if you are eager to do good? 14 But even if you should suffer for what is right, you are blessed. “Do not fear their threats[b]; do not be frightened.”[c] 15 But in your hearts revere Christ as Lord. Always be prepared to give an answer to everyone who asks you to give the reason for the hope that you have.
 
-
-
-The true *purpose of our existence* can really be summed up in two major categories 
-   * Glorify God
-   * Make disciples
-   `When we die, nothing else matters. only one of these can be done on earth, but not in heaven`
-
-We cannot stress reaching the lost enough. We tend to assume that only teachers and missionaries are responsible for leading others to Christ, but it is an essential part of a healthy Christian walk. 
-
 ### What is Evangelism? 
 >Evangelism: the spreading of the Christian gospel by public preaching or personal witness.
 
-### How Evangelism benefits us
-1. Evangelism deepens our understanding of the most fundamental part of the Christian faith.
-    `evangelism is essentially sharing the gospel. Boy scout tying knots`
-    If you are actively planning to share the gospel, it will inspire you to know and live it. 
-    >“I pray that you may be active in sharing your faith, so that you will have a full understanding of every good thing we have in Christ.” - Philemon 1:6
-    
-    >Those who know do, those who understand teach - Aristotle 
-2. Evangelism grows our love for God and People
-    >"And you shall love the Lord your God with all your heart and with all your soul and with all your mind and with all your strength.’ The second is this: You shall love your neighbor as yourself.’ There is no other commandment greater than these.” - Mark 12:30-31
 
+We tend to place the responsibility of reaching the lost on preachers, missionaries, and the religious elite, but it is clear in the Bible that it is our responsibility. Some argue that the great commision was only intended for the desciples, however thie command was to make **disciples that make disciples**.
+
+
+>Therefore go and **make disciples** of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 20 and teaching them to obey **everything I have commanded you**. And surely I am with you always, to the very end of the age.” - Matthew 28: 19-20
+
+The true *purpose of our existence* can be summed up in two categories 
+   * Glorify God
+   * Make disciples
+   
+>Only one life, ’twill soon be past,
+Only what’s done for Christ will last. - C.T Studd
+
+
+   
+`When we die, nothing else matters. only one of these can be done on earth, but not in heaven`
+
+
+
+### How Evangelism benefits us
+1. Sharing our faith often deepens our understanding of the most fundamental part of the Christian faith.
+    `boy scout tying knots`
+    If you are actively sharing the gospel, it will inspire you to more wholeheartedly know and live it. 
+    >I pray that you may be active in sharing your faith, so that you will have a full understanding of every good thing we have in Christ. - Philemon 1:6
+
+    >Those who know do, those who understand teach - Aristotle 
     
-3. Evangelism is a refreshing part of our walk. 
-    * We can only be poured into so much before we need to start pouring into others `sponge`
-    * It should also be a natural result/excitement (TODO) `colin and movies`
+2. Evangelism also prompts unexpected questions and objections from non-Christians, which can deepen our faith.
+    
+    
+3. Evangelism grows our love for God and People
+    >And you shall love the Lord your God with all your heart and with all your soul and with all your mind and with all your strength.’ The second is this: You shall love your neighbor as yourself.’ There is no other commandment greater than these.” - Mark 12:30-31
+    
+4. Evangelism is a natural and refreshing part of our walk. 
+    * We can only be poured into so much before we need to start pouring into others. Our Christian walk functions similar to a sponge. `sponge`
+    * It should also be a natural result of the joy we have found in Christ. `colin and movies`
 
 ###It is our purpose 
 We are commanded to make disciples. It is not simply a suggestion. 
->"Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age.” - Matthew 28: 19-20
+>Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. - Matthew 28: 19-20
 ### Eternity is at stake 
 > Then Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And if anyone's name was not found written in the book of life, he was thrown into the lake of fire. - Revelations 20:14-15
 
@@ -40,18 +53,29 @@ We are commanded to make disciples. It is not simply a suggestion.
 Our mission is to give the good news, our strategy is to **be** the good news. 
 >Be imitators of God, therefore, as beloved children, and walk in love, just as Christ loved us and gave Himself up for us as a fragrant sacrificial offering to God. - Ephesians 5:1-2
 
-The lost are constantly evaluating us in order to determine for themselves weather or not our faith is genuine. `rat poison analogy` Too often we are either hypocritical or braggadocious about our faith
+The lost are constantly evaluating us in order to determine for themselves weather or not our faith is genuine.  Too often we are either hypocritical or braggadocious about our faith.
+
+`rat poison analogy`
+
+
 >“These religious types were the fans that Jesus seems to have the most trouble with. Fans who will walk into a restaurant and bow their heads to pray before a meal just in case someone is watching. Fans who won’t go to R-rated movies at the theater, but have a number of them saved on their DVR at home. Fans who may feed the hungry and help the needy, and then they make sure they work it into every conversation for the next two weeks. Fans who make sure people see them put in their offering at church, but they haven’t considered reaching out to their neighbor who lost a job and can’t pay the bills. Fans who like seeing other people fail because in their minds it makes them look better. Fans whose primary concern in raising their children is what other people think. Fans who are reading this and assuming I’m describing someone else. Fans who have worn the mask for so long they have fooled even themselves.” 
 ― Kyle Idleman
 
-This works both ways. If you are truly genuine about imitating Christ, those around you will notice. 
-`swim team locker room` `don’t cuss around him` 
-`not looking at nudity`
+We are to be different than the world. 
+
+>Do not let any unwholesome talk come out of your mouths, but only what is helpful for building others up according to their needs, that it may benefit those who listen. - Ephesians 4:29
+
+>But godliness with contentment is great gain. For we brought nothing into the world, and we can take nothing out of it.  - 1 Timothy 6: 6-7
+
+>Rejoice always, pray without ceasing, give thanks in all circumstances; for this is the will of God in Christ Jesus for you. - 1 Thessalonians 5: 16-18
+
+If you truly strive to imitate Christ, the lost around you will notice that something is different. 
+`swim team locker room` `don’t cuss around him` `not looking at nudity story`
 
 `story of the department store owner` 
 ### Build intimate relationships with the lost
 
-The topic of salvation is a very personal matter, so naturally non believers are much more comfortable talking about it with a close friend. Because of this, we should seek to establish relationships with non believers. 
+The topic of salvation is a very personal matter, so naturally non believers are much more comfortable talking about it with a close friend. Because of this, we should **intentionally** seek to establish relationships with non believers. 
 
 Unfortunately, there is a common misconception that Christians should not be 'friends' with non believers. 
 > "Do not love the world or anything in the world. If anyone loves the world, the love of the Father is not in him. [16] For all that is in the world—the desires of the flesh, the desires of the eyes, and the pride of life—is not from the Father but from the world." - 1 John 2: 15-16
@@ -62,13 +86,15 @@ However, it was clear that Jesus spent time with sinners too.
 The number one way to develop a genuine relationship with anyone is to show God's sacrificial love to them. 
 >"If I speak in the tongues of men or of angels, but do not have love, I am only a resounding gong or a clanging cymbal. If I have the gift of prophecy and can fathom all mysteries and all knowledge, and if I have a faith that can move mountains, but do not have love, I am nothing. If I give all I possess to the poor and give over my body to hardship that I may boast,b but do not have love, I gain nothing." - 1 Corinthians 13: 1-2
 
+This can be shown in a multitude of ways. Helping them move, changing their breaks, just being a friend and letting them know that you are praying for them. 
 
 ### Clearly communicate the gospel
 When  the time is right, we are to be prepared to share the gospel.  
 This is actually the easiest step. 
 1. People long for something more
-2. The Holy Spirit should be your guide here. `deeksha`
+2. The Holy Spirit should be your guide here. `deeksha 1`
 3. Despite what you may think, many people simply don't have a clue what it means to be a Christian `Will` 
+4. Ideally at this point, they have seen your life and want what you have. 
 
 ## The Gospel
 #### Acknowledge that you are a sinner
@@ -103,9 +129,7 @@ Though it is a simple message, it is important to emphasize that this is not a s
 ## Closing Thoughts
 We have so many opportunities every single day to reach out to the lost. There is no excuse for failing to proclaim the gospel. It is very clear in scripture that we are all called to make disciples.
 `friends dad passing church in estill springs`
-`deeksha`
-
-
+`deeksha 2`
 
 
 
