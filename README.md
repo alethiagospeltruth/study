@@ -1,5 +1,4 @@
  ## The call
----
 >8 Finally, all of you, be like-minded, be sympathetic, love one another, be compassionate and humble. 9 Do not repay evil with evil or insult with insult. On the contrary, repay evil with blessing, because to this you were called so that you may inherit a blessing. 10 For, “Whoever would love life and see good days
 must keep their tongue from evil and their lips from deceitful speech. 11 They must turn from evil and do good; they must seek peace and pursue it. 12 For the eyes of the Lord are on the righteous and his ears are attentive to their prayer, but the face of the Lord is against those who do evil.”[a] 13 Who is going to harm you if you are eager to do good? 14 But even if you should suffer for what is right, you are blessed. “Do not fear their threats[b]; do not be frightened.”[c] 15 But in your hearts revere Christ as Lord. Always be prepared to give an answer to everyone who asks you to give the reason for the hope that you have.
 
@@ -37,7 +36,6 @@ We are commanded to make disciples. It is not simply a suggestion.
 > Then Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And if anyone's name was not found written in the book of life, he was thrown into the lake of fire. - Revelations 20:14-15
 
 ## The Strategy
----
 ### Live with authenticity 
 Our mission is to give the good news, our strategy is to **be** the good news. 
 >Be imitators of God, therefore, as beloved children, and walk in love, just as Christ loved us and gave Himself up for us as a fragrant sacrificial offering to God. - Ephesians 5:1-2
@@ -47,7 +45,8 @@ The lost are constantly evaluating us in order to determine for themselves weath
 ― Kyle Idleman
 
 This works both ways. If you are truly genuine about imitating Christ, those around you will notice. 
-`swim team locker room` `don’t cuss around him``not looking at nudity`
+`swim team locker room` `don’t cuss around him` 
+`not looking at nudity`
 
 `story of the department store owner` 
 ### Build intimate relationships with the lost
@@ -72,7 +71,6 @@ This is actually the easiest step.
 3. Despite what you may think, many people simply don't have a clue what it means to be a Christian `Will` 
 
 ## The Gospel
----
 #### Acknowledge that you are a sinner
 > "All have sinned and fall short of the glory of God" - Romans 3:23
 
