@@ -10,8 +10,13 @@ Up to this point:
 * Adam and Eve lived in a perfect world, free from sin and death
     > `Genesis 2:25` Adam and his wife were both naked, and they felt no shame.
     * This didn't last very long.. `bible%`
-* By falling into temptation, they became doubters of Gods goodness and as a result the entire Human race fell.
-    * Everyone is affected by this. 
+* By falling into temptation, they caused the entire Human race fell.
+    * All of mankind is affected by this. 
+        * Pain
+        * Suffering
+        * Sin
+        * Death
+    * This is the world we know.
     * Humans now born 'Spiritually dead and physically dying' - Mac Arthur
 
 **Importance**
@@ -123,23 +128,23 @@ Eve not only failed to resist temptation, she also became an agent of temptation
 
 **The focus of Mankind shifted from God, to ourselves**
 * It implies that there was no selfishness. They didn't even notice that they were naked.
-* We are ashamed of our nakedness, unlike any other creature
 * The first instance of selfishness
 * All sin ultimately comes from selfishness
 * We live in a world centered around selfishness
-
-Todo: fill in here from YouTube video
+    * School > College > Career > Money > Car > etc...
+* We are ashamed of our nakedness, unlike any other creature
 
 **Covering our sins is foolishness**:
 * Fig leaves are course and prickly. Any time we try to hide our sin from God it is foolishness.
 
 >8 Then the man and his wife heard the sound of the Lord God as he was walking in the garden in the cool of the day, and they hid from the Lord God among the trees of the garden.
+* This appears to have been a common occurrence. 
+* Many scholars believe that God walked with them in a humanoid form. After all, we are made in `His Image` 
+* Before the Fall, mankind experienced God with **true intimacy**. 
+    * They could physically hear him. 
+    * I believe they could see Him, walk with Him, and talk with him.
 
-This appears to have been a common occurrence. Many scholars believe that God walked with them in a humanoid form. After all, we are made in `His Image` 
-
-Before the Fall, mankind experienced God with **true intimacy**. I physically hear him. I believe they could see Him, walk with Him, and talk with him.
-
-`friend analogy`
+* What affect would this have on mankinds relationship with him? `friend analogy`
 
 >9 But the Lord God called to the man, “Where are you?”
 10 He answered, “I heard you in the garden, and I was afraid because I was naked; so I hid.”
@@ -160,10 +165,12 @@ Why does God ask a question? It is for **our benefit**.
 
 Adam fails to confess his sin. Instead, he blames **Eve and God**
 
-> 13 Then the Lord God said to the woman, “What is this you have done?” The woman said, “The serpent deceived me, and I ate.”
+Adam and Eve's perfect relationship was short lived
 
-Eve's response is truthful. She **was** deceived by the serpent. We must understand that it is Sin to let yourself be deceived. 
-* It is sin to exchange the truth of God for the lie of Satan. 
+> 13 Then the Lord God said to the woman, “What is this you have done?” The woman said, “The serpent deceived me, and I ate.”
+* Eve's response is truthful. She **was** deceived by the serpent. 
+* We must understand that it is Sin to let yourself be deceived. 
+* Any time we exchange the truth of God for the lie of Satan, it is sin.
 
 
 ## The Curse 
@@ -179,14 +186,18 @@ You will crawl on your belly
     and between your offspring[a] and hers;
 he will crush[b] your head,
     and you will strike his heel.”
-* God asks questions to both Adam and Eve, but there was no benefit in questioning Satan. 
+* God does not question Satan. There was no benefit in questioning Satan. 
 * Their is now a natural aversion between mankind and serpents. 
 
 > he will crush[b] your head and you will strike his heel.”
 * This is the first occurrence of the Gospel
-* Mans sin does not negate God's sovereignty 
 * An entire sermon could easily be done right here
- 
+* Genesis 3:15 has been called the protoevangelium, the first gospel. Luther said of this verse: "This text embraces and comprehends within itself everything noble and glorious that is to be found anywhere in the Scriptures." (Leupold)
+* There is no doubt this is a prophecy of Jesus' ultimate defeat of Satan.
+* God's plan wasn't "set back" when Adam and Eve sinned, because God's plan was to bring forth something greater than man in the innocence of Eden. God wanted more than innocent man; His plan is to bring forth redeemed man. - David Guzik 
+* Redeemed man - this being who is greater than innocent man - is only possible because man had something to be redeemed from.
+* `Mans sin does not negate God's sovereignty`
+
 
 ### Curse on the Woman
 >16 To the woman he said,
@@ -223,7 +234,14 @@ for dust you are
 ## Conclusion 
 >21 The Lord God made garments of skin for Adam and his wife and clothed them. 
 * This is another example of foreshadowing. Blood was shed to cover their sins.
+    > `Hebrews 9:22`: Without shedding of blood there is no remission. (Hebrews 9:22)
+* Covering ourselves with Good Works is like covering ourselves with fig leaves. It's useless. 
 
 > 22 And the Lord God said, “The man has now become like one of us, knowing good and evil. He must not be allowed to reach out his hand and take also from the tree of life and eat, and live forever.” 23 So the Lord God banished him from the Garden of Eden to work the ground from which he had been taken. 24 After he drove the man out, he placed on the east side[e] of the Garden of Eden cherubim and a flaming sword flashing back and forth to guard the way to the tree of life.
 * God wasn't afraid that Adam and Eve would usurp him if they could live forever
 * He ensured that this didn't happen for our benefit. If they had eaten of the tree of life and gained immortality, mankind's relationship with God would never be fully restored.
+
+>`1 Corinthians 5:21`: God made him who had no sin to be sin[a] for us, so that in him we might become the righteousness of God.
+
+>`John 3:16`: For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life.
+
