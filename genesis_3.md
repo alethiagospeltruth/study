@@ -1,42 +1,60 @@
 >6 When the woman saw that the fruit of the tree was good for food and pleasing to the eye, and also desirable for gaining wisdom, she took some and ate it. She also gave some to her husband, who was with her, and he ate it. 7 Then the eyes of both of them were opened, and they realized they were naked; so they sewed fig leaves together and made coverings for themselves.
 
 ## The Fall
-This passage is often mislabeled as a **myth** or **legend**, but the Bible records this as a **real** event. 
 
-We are introduced to:
-* Evil
-* Sin
-* Satan
-* Shame
-* Punishment 
-* Mercy 
+Up to this point:
+* Chapter 1 describes the creation.
+* Chapter 2 describes in greater detail the creation of Mankind.
+* God said that 'It was Good'
+* God said that 'It was very Good'
+* Adam and Eve lived in a perfect world, free from sin and death
+    > `Genesis 2:25` Adam and his wife were both naked, and they felt no shame.
+    * This didn't last very long.. `bible%`
+* By falling into temptation, they became doubters of Gods goodness and as a result the entire Human race fell.
+    * Everyone is affected by this. 
+    * Humans now born 'Spiritually dead and physically dying' - Mac Arthur
 
-This chapter marks a decisive **turning point** in the history of the universe. Chapter 2 ends with Gods perfect creation, but here we are introduced to mans sinful nature. `bible percentage`
+**Importance**
+*  This passage is often mislabeled as a **myth** or **legend**, but the Bible records this as a **real** event. 
+* More than 50% of Christian colleges do not accept this as a real event.
+* We often forget to dig deeper since it's a common Sunday School passage.
 
-The real tragedy is not that we have to labor or that women have difficulty during childbirth, but that sin crippled our ability to have perfect communion with God.
+Let's take a look, section by section:
+* The Temptation
+* The Sin
+* The Curse
+* The Savior
 
-TODO: there is a lot to learn here.
+We may not have time for everything. If we have to split it up we can.
 
 ## The temptation
 >1 Now the serpent was more crafty than any of the wild animals the Lord God had made. He said to the woman, “Did God really say, ‘You must not eat from any tree in the garden’?”
 2 The woman said to the serpent, “We may eat fruit from the trees in the garden, 3 but God did say, ‘You must not eat fruit from the tree that is in the middle of the garden, and you must not touch it, or you will die.’”
 4 “You will not certainly die,” the serpent said to the woman. 5 “For God knows that when you eat from it your eyes will be opened, and you will be like God, knowing good and evil.”
 
-#### Satan Lays a foundation
+### Satan's Temptation
+
 > Now the **serpent**
 
 The true identity of the serpent isn't clear here, it is confirmed later the bible that this is Satan appearing as a pre-curse serpent. 
+
+Satan probably fell from heaven just before this. 
+* > `Revelation 12:9` The great dragon was hurled down—that ancient serpent called the devil, or Satan, who leads the whole world astray. He was hurled to the earth, and his angels with him.
+
+
+#### Satan's attack on Eve
 >  said to the woman
 
 Eve had not received the command directly from God, so she was a more vulnerable target. 
 
 It is also possible that Satan noticed that **Adam did not clearly communicate** the command to Eve. 
 
-Satan always attacks the weakest link at an **opportune** moment. `temptation to sin` `chris`
+Satan always attacks the weakest link at an **opportune** moment. 
 
 > “Did God really say, ‘You must not eat from any tree in the garden’?”
 
-Satan twists the command of God to use it as a weapon.  
+Satan loves to use the command of God as a weapon. 
+
 `jesus tempted in the desert`
 
 #### Eve's weakness
@@ -51,6 +69,20 @@ There are three critical mistakes in this statement:
     * Prosperity Gospel
     * Catholicism 
 
+Compare this to how Jesus responds:
+
+`Matthew 4:3-11`
+> 3 `The tempter` came to him and said, **“If you are the Son of God, tell these stones to become bread.”**
+4 Jesus answered, **“It is written: ‘Man shall not live on bread alone, but on every word that comes from the mouth of God.’**[b]”
+5 Then the devil took him to the holy city and had him stand on the highest point of the temple. 6 **“If you are the Son of God,” he said, “throw yourself down. For it is written:
+“‘He will command his angels concerning you,
+    and they will lift you up in their hands,
+    so that you will not strike your foot against a stone.’[c]”**
+7 Jesus answered him, **“It is also written: ‘Do not put the Lord your God to the test.’[d]”**
+8 Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. 9 **“All this I will give you,” he said, “if you will bow down and worship me.”**
+10 Jesus said to him, **“Away from me, Satan! For it is written: ‘Worship the Lord your God, and serve him only.’[e]”**
+11 Then the devil left him, and angels came and attended him.
+
 #### Satan's Lie
 
 >4 “You will not certainly die,” the serpent said to the woman. 5 “For God knows that when you eat from it your eyes will be opened, and you will be like God, knowing good and evil.”
@@ -63,7 +95,8 @@ Satan's attack is simple:
 * Infuse truths with lies
 
 Becoming 'Like God' is the **same trap** Satan fell into. 
-TODO: add reference
+* Isaiah 13
+* Ezekiel 29
 
 ## The Sin
 > 6 When the woman saw that the fruit of the tree was good for food and pleasing to the eye, and also desirable for gaining wisdom, she took some and ate it. She also gave some to her husband, who was with her, and he ate it.
@@ -77,6 +110,8 @@ Eve did not have to take the fruit. It was her own doing.
 
 `1 Corinthians 10:13`
 > 13 No temptation[a] has overtaken you except what is common to mankind. And God is faithful; he will not let you be tempted[b] beyond what you can bear. But when you are tempted,[c] he will also provide a way out so that you can endure it.
+
+One could debate what the word would be like if Mankind had chosen God in the chapter, but I don't think it's very useful since that's not what happened. 
 
 Eve not only failed to resist temptation, she also became an agent of temptation for Adam.
 
@@ -146,9 +181,12 @@ he will crush[b] your head,
     and you will strike his heel.”
 * God asks questions to both Adam and Eve, but there was no benefit in questioning Satan. 
 * Their is now a natural aversion between mankind and serpents. 
- 
-` (skip 15 for now)`
 
+> he will crush[b] your head and you will strike his heel.”
+* This is the first occurrence of the Gospel
+* Mans sin does not negate God's sovereignty 
+* An entire sermon could easily be done right here
+ 
 
 ### Curse on the Woman
 >16 To the woman he said,
@@ -179,13 +217,13 @@ for dust you are
 * Every man shall eventually die.  (to dust you return)
 
 > 20 Adam[c] named his wife Eve,[d] because she would become the mother of all the living.
-* `random` 
+* `this is so random to me` 
 * This is the first occurrence of faith. Adam had faith that Eve would become a mother.
 
 ## Conclusion 
 >21 The Lord God made garments of skin for Adam and his wife and clothed them. 
+* This is another example of foreshadowing. Blood was shed to cover their sins.
 
 > 22 And the Lord God said, “The man has now become like one of us, knowing good and evil. He must not be allowed to reach out his hand and take also from the tree of life and eat, and live forever.” 23 So the Lord God banished him from the Garden of Eden to work the ground from which he had been taken. 24 After he drove the man out, he placed on the east side[e] of the Garden of Eden cherubim and a flaming sword flashing back and forth to guard the way to the tree of life.
 * God wasn't afraid that Adam and Eve would usurp him if they could live forever
 * He ensured that this didn't happen for our benefit. If they had eaten of the tree of life and gained immortality, mankind's relationship with God would never be fully restored.
-
