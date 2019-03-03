@@ -11,13 +11,13 @@ We are introduced to:
 * Punishment 
 * Mercy 
 
-This chapter marks a decisive **turning point** in the history of the universe. Chapter 2 ends with Gods perfect creation, but here we are introduced to mans sinful nature. `movie`
+This chapter marks a decisive **turning point** in the history of the universe. Chapter 2 ends with Gods perfect creation, but here we are introduced to mans sinful nature. `bible percentage`
 
 The real tragedy is not that we have to labor or that women have difficulty during childbirth, but that sin crippled our ability to have perfect communion with God.
 
 TODO: there is a lot to learn here.
 
-### The temptation
+## The temptation
 >1 Now the serpent was more crafty than any of the wild animals the Lord God had made. He said to the woman, “Did God really say, ‘You must not eat from any tree in the garden’?”
 2 The woman said to the serpent, “We may eat fruit from the trees in the garden, 3 but God did say, ‘You must not eat fruit from the tree that is in the middle of the garden, and you must not touch it, or you will die.’”
 4 “You will not certainly die,” the serpent said to the woman. 5 “For God knows that when you eat from it your eyes will be opened, and you will be like God, knowing good and evil.”
@@ -30,7 +30,7 @@ The true identity of the serpent isn't clear here, it is confirmed later the bib
 
 Eve had not received the command directly from God, so she was a more vulnerable target. 
 
-It is also possible that Satan noticed that **Adam did not clearly communicate** the command from Eve. 
+It is also possible that Satan noticed that **Adam did not clearly communicate** the command to Eve. 
 
 Satan always attacks the weakest link at an **opportune** moment. `temptation to sin` `chris`
 
@@ -41,29 +41,31 @@ Satan twists the command of God to use it as a weapon.
 
 #### Eve's weakness
 
->3 but God did say, ‘You must not eat fruit from the tree **that is in the middle** of the garden, **and you must not touch it, or you will die.**'
+> 3 but God did say, ‘You must not eat fruit from the tree **that is in the middle** of the garden, **and you must not touch it, or you will die.**'
 
 There are three critical mistakes in this statement:
 * She **responds** to Satan.
   * The ONLY way to respond to Satan's temptation is with scripture.
 * She lacks **confidence** about what God said. She is uncertain of the tree. She doesn't know the name of it, just that it's 'in the middle'
 * She **adds** to what God said. 
+    * Prosperity Gospel
+    * Catholicism 
 
 #### Satan's Lie
 
 >4 “You will not certainly die,” the serpent said to the woman. 5 “For God knows that when you eat from it your eyes will be opened, and you will be like God, knowing good and evil.”
 
-Todo: word for 'Know' since it really means experience
-common misinterpretation 
+* common misinterpretation: know means *experience*
 
-Satan's attack uses several strategies:
+Satan's attack is simple:
 * Make sin appear attractive
 * Make God appear evil, since he doesn't want us to sin
 * Infuse truths with lies
 
-Becoming 'Like God' is the same trap Satan fell into. 
+Becoming 'Like God' is the **same trap** Satan fell into. 
+TODO: add reference
 
-#### Sin
+## The Sin
 > 6 When the woman saw that the fruit of the tree was good for food and pleasing to the eye, and also desirable for gaining wisdom, she took some and ate it. She also gave some to her husband, who was with her, and he ate it.
 
 Eve fell to the same temptation that is described by John in 1 John 2:16
@@ -76,36 +78,114 @@ Eve did not have to take the fruit. It was her own doing.
 `1 Corinthians 10:13`
 > 13 No temptation[a] has overtaken you except what is common to mankind. And God is faithful; he will not let you be tempted[b] beyond what you can bear. But when you are tempted,[c] he will also provide a way out so that you can endure it.
 
-Eve became an agent of temptation for Adam, but Atom received the command directly from God. It wasn't tricked, he ate it out of defiance. This is why the fall of man is placed on Atom. 
+Eve not only failed to resist temptation, she also became an agent of temptation for Adam.
 
+**Defiance**: Atom received the command directly from God. He wasn't tricked, he ate it out of defiance. This is why the fall of man is placed on Atom. 
 
-> 7 Then the eyes of both of them were opened, and they realized they were naked; so they sewed fig leaves together and made coverings for themselves.>
+### One of the saddest verse in all of scripture
 
-One of the saddest verse in all of scripture
+> 7 Then the eyes of both of them were opened, and they realized they were naked; so they sewed fig leaves together and made coverings for themselves.
+
+**The focus of Mankind shifted from God, to ourselves**
+* It implies that there was no selfishness. They didn't even notice that they were naked.
+* We are ashamed of our nakedness, unlike any other creature
+* The first instance of selfishness
+* All sin ultimately comes from selfishness
+* We live in a world centered around selfishness
+
 Todo: fill in here from YouTube video
 
-Fig leaves are course and prickly. Any time we try to hide our sin from God it is foolishness.
+**Covering our sins is foolishness**:
+* Fig leaves are course and prickly. Any time we try to hide our sin from God it is foolishness.
 
 >8 Then the man and his wife heard the sound of the Lord God as he was walking in the garden in the cool of the day, and they hid from the Lord God among the trees of the garden.
 
-It's amazing to think that they had such Physical interaction with God. 'Walking' 
+This appears to have been a common occurrence. Many scholars believe that God walked with them in a humanoid form. After all, we are made in `His Image` 
+
+Before the Fall, mankind experienced God with **true intimacy**. I physically hear him. I believe they could see Him, walk with Him, and talk with him.
+
+`friend analogy`
 
 >9 But the Lord God called to the man, “Where are you?”
 10 He answered, “I heard you in the garden, and I was afraid because I was naked; so I hid.”
 
 Sin always drives us away from God. 
+In Gods grace, he chooses to pursue us
+* God could have chosen to let man go. 
 
 
 > 11 And he said, “Who told you that you were naked? Have you eaten from the tree that I commanded you not to eat from?”
 
-Whenever God asks a question, it is for our benefit. This was an opportunity for Adam to repent.
+Why does God ask a question? It is for **our benefit**. 
+* This was an opportunity for Adam to **repent**.
 
-> 2 The man said, “The woman you put here with me—she gave me some fruit from the tree, and I ate it.”
+> 12 The man said, "I confess before you that I have eaten from the tree. Please forgive me of my sin." (JKV) 
 
-Adam blames both Eve and God
+> 12 The man said, “The woman you put here with me—she gave me some fruit from the tree, and I ate it.”
+
+Adam fails to confess his sin. Instead, he blames **Eve and God**
 
 > 13 Then the Lord God said to the woman, “What is this you have done?” The woman said, “The serpent deceived me, and I ate.”
 
+Eve's response is truthful. She **was** deceived by the serpent. We must understand that it is Sin to let yourself be deceived. 
+* It is sin to exchange the truth of God for the lie of Satan. 
 
 
+## The Curse 
+### Curse on the Serpent
+>14 So the Lord God said to the serpent, “Because you have done this,
+“Cursed are you above all livestock
+    and all wild animals!
+You will crawl on your belly
+    and you will eat dust
+    all the days of your life.
+15 And I will put enmity
+    between you and the woman,
+    and between your offspring[a] and hers;
+he will crush[b] your head,
+    and you will strike his heel.”
+* God asks questions to both Adam and Eve, but there was no benefit in questioning Satan. 
+* Their is now a natural aversion between mankind and serpents. 
+ 
+` (skip 15 for now)`
+
+
+### Curse on the Woman
+>16 To the woman he said,
+“I will make your pains in childbearing very severe;
+    with painful labor you will give birth to children.
+Your desire will be for your husband,
+    and he will rule over you.”
+* Women bear children with more pain than almost any other creature.
+* God's set hierarchy of humanity is now more difficult. It is more difficult for wives to embrace their husband's role as the leader of the home and family. 
+
+> "As a result of the fall, man no longer rules easily; he must fight from his headship. Sin has corrupted both the willing submission of the wife and the loving headship of the husband. The woman's desire is to control her husband (to usurp his divinely appointed headship), and he must master her, if he can. So the rule of love founded in paradise is replaced by struggle, tyranny and domination." (Susan T. Foh, cited in Boice)
+
+### Curse on the Man
+>17 To Adam he said, “Because you listened to your wife and ate fruit from the tree about which I commanded you, ‘You must not eat from it,’
+“Cursed is the ground because of you;
+    through painful toil you will eat food from it
+    all the days of your life.
+18 It will produce thorns and thistles for you,
+    and you will eat the plants of the field.
+19 By the sweat of your brow
+    you will eat your food
+until you return to the ground,
+    since from it you were taken;
+for dust you are
+    and to dust you will return.”
+* Before the curse, the ground only produced good. After the curse it still produces good, but the good is naturally entangled within thorns and thistles. `garden`
+* Before the curse, adam worked, bt it was joyous work. Now work is partially a curse. 
+* Every man shall eventually die.  (to dust you return)
+
+> 20 Adam[c] named his wife Eve,[d] because she would become the mother of all the living.
+* `random` 
+* This is the first occurrence of faith. Adam had faith that Eve would become a mother.
+
+## Conclusion 
+>21 The Lord God made garments of skin for Adam and his wife and clothed them. 
+
+> 22 And the Lord God said, “The man has now become like one of us, knowing good and evil. He must not be allowed to reach out his hand and take also from the tree of life and eat, and live forever.” 23 So the Lord God banished him from the Garden of Eden to work the ground from which he had been taken. 24 After he drove the man out, he placed on the east side[e] of the Garden of Eden cherubim and a flaming sword flashing back and forth to guard the way to the tree of life.
+* God wasn't afraid that Adam and Eve would usurp him if they could live forever
+* He ensured that this didn't happen for our benefit. If they had eaten of the tree of life and gained immortality, mankind's relationship with God would never be fully restored.
 
