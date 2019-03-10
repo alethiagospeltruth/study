@@ -227,20 +227,105 @@ for dust you are
 * Before the curse, adam worked, bt it was joyous work. Now work is partially a curse. 
 * Every man shall eventually die.  (to dust you return)
 
-> 20 Adam[c] named his wife Eve,[d] because she would become the mother of all the living.
-* `this is so random to me` 
-* This is the first occurrence of faith. Adam had faith that Eve would become a mother.
+### Focus on 20-24
+#### Rich with meaning
+* We have the elements of salvation
+* Elements of Redemption
+* As soon as man falls, God sets in motion the plan to redeem him
+
+Components of Saltation
+* Faith 
+* Atonement 
+* Security
+
+Mac Arthur
+> * Gods work is to provide Atonement and Security
+> * Our response is faith and hope
+
+## Faith:
+* Salvation is "by grace through faith"
+* In a biblical sense, faith is believing the word of God 
+    * At any point in scripture, faith meant believing what had been written. 
+* We see this in verse 20:
+    > The man called his wife's name Eve, because she was the mother of all living.[g] 21 And the Lord God made for Adam and for his wife garments of skins and clothed them.
+    * `this seemed at first so random to me` 
+    * Satin first convinced them that God was a liar
+    * In the paradise they believed Satin and not God. 
+    * At this point they found themselves in depravity
+        * This is because they believed satin over God
+        * Pain in child bearing
+        * Conflict in marriage 
+    * This is a result of them not believing God
+* This changes in verse 20. 
+    * Adam knew that **life** would come from his wife
+    > 15 I will put enmity between you and the woman, and between your offspring[e] and her offspring; he shall bruise your head,
+    and you shall bruise his heel.” 
+    * This states that the seed of the woman would crush the head of Satan. 
+    * Adam naming his wife **life** is an expression of faith in the word of the creator. 
+        * At the time nobody was the mother of anything. 
+    * Adam now believes God again. 
+    * This was as far as it was possible at that time, an act of faith in the word of God. 
+    * Faith in the unseen Christ. 
+* This type of faith is referenced in Hebrews:
+    > Hebrews 11:1 Now faith is the assurance of things hoped for, the conviction of things not seen. 2 For by it the men of old gained approval. 
+    * God approves of those who trust in him. 
+    * This is the first illustration of a man coming to God by faith. Believing everything God said
+    * Similar to Abraham 
+        > Genesis 16:6 Abram believed the LORD, and he credited it to him as righteousness.
+
+        > Habakkuk 2:4 "... The Just shall live by faith"
+    * For us this means believing the gospel
+    * This **includes** repentance, because they turned from Satan so that they could believe God.
+* The attitude of Adam was dramatically changed toward God, and toward Satin. No longer would he believe the liar, who brought this evil upon him; he would believe God. Once a believer only in God, he had defected to become a believer in the serpent, a follower of God's enemy -the lying devil. But in the very words of naming Eve, Adam demonstrates that he believes God's word and is anticipating its fulfillment, including the destruction of Satin, his former master.
+
+
+
+## Atonement: 
+The response of Man is Faith, the provision of God is Atonement
+* Salvation also requires atonement. 
+    * Atonement: Reparation for a wrong or injury.
+    * Atonement: reparation or expiation for sin.
+> 21 And the Lord God made for Adam and for his wife garments of skins and clothed them.
+* This is Gods grace toward sinful man.  
+* Adam and Eve deserved death
+    * "In the day you eat.. you die" 
+* Instead of killing them, he covers them. 
+* Moses uses "Lord God" Is used instead of just Lord for the rest of the passage. 
+    * This name identifies God as not only the creator of everything, also as Lord of grace. Moses is presenting God as the One who is gracious and merciful, so Yahweh is added to Elohim. 
+* This is not simply providing for their physical need of clothing. 
+    * The verse said the skins of an animal
+    * This implies that an animal had to die. 
+    * This is atonement. God clothed the naked sinner by the sacrifice of an innocent victim. 
+    * Providing atonement: satisfaction to His own required justice with a substitute. 
+    * First death ever.
+        **God will provide the sacrifice**. 
+           * Isaac in Genesis 22
+
+
+## Security
+> 22 Then the Lord God said, “Behold, the man has become like one of us in knowing good and evil. Now, lest he reach out his hand and take also of the tree of life and eat, and live forever—” 23 therefore the Lord God sent him out from the garden of Eden to work the ground from which he was taken. 24 He drove out the man, and at the east of the garden of Eden he placed the cherubim and a flaming sword that turned every way to guard the way to the tree of life.
+* God doesn't experience evil in that he is evil.. 
+
+* Man is sinful (evil), God is good. 
+* If man were to eat from the tree of life, he will be eternally evil. 
+* Man now knows what death means, so he would be tempted to avoid death. 
+    * Eternal sin with no hope for deliverance
+    * Endless Evil
+* This temptation was too great
+
+God not only provides atonement, he secures his people from eternally falling.
+> Psalm 97:10 He preserves the soul of His saints.
+
+> Psalm 89: My loving kindness I will not take from him; I will not allow my faithfulness to fail."
+
+> Lamentations 3: Thy mercies are new every morning, great is thy faithfulness
+
+* God Drives man out so that man does not turn eternally evil. Gad has a far better plan for us. 
+
+## Hope
+* This chapter starts with the greatest tragedy in the history of the world ends with the greatest promise. 
 
 ## Conclusion 
->21 The Lord God made garments of skin for Adam and his wife and clothed them. 
-* This is another example of foreshadowing. Blood was shed to cover their sins.
-    > `Hebrews 9:22`: Without shedding of blood there is no remission. (Hebrews 9:22)
-* Covering ourselves with Good Works is like covering ourselves with fig leaves. It's useless. 
-
-> 22 And the Lord God said, “The man has now become like one of us, knowing good and evil. He must not be allowed to reach out his hand and take also from the tree of life and eat, and live forever.” 23 So the Lord God banished him from the Garden of Eden to work the ground from which he had been taken. 24 After he drove the man out, he placed on the east side[e] of the Garden of Eden cherubim and a flaming sword flashing back and forth to guard the way to the tree of life.
-* God wasn't afraid that Adam and Eve would usurp him if they could live forever
-* He ensured that this didn't happen for our benefit. If they had eaten of the tree of life and gained immortality, mankind's relationship with God would never be fully restored.
-
 >`1 Corinthians 5:21`: God made him who had no sin to be sin[a] for us, so that in him we might become the righteousness of God.
 
 >`John 3:16`: For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life.
