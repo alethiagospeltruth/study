@@ -22,7 +22,7 @@ There is always forgiveness for sin confessed:
 
 * God's desire for the believer is that we may not sin. The resources needed for spiritual victory are in Jesus Christ. 
 * Sin comes when we rely on our flesh instead of Jesus for victory over sin. One day we will have spiritual victory over sin. 
-* Paul is focusing on this because sin breaks our fellowship.
+* John is focusing on this because sin breaks our fellowship.
 
 > And if anyone sins, we have an Advocate with the Father, Jesus Christ the righteous. And He Himself is the propitiation for our sins, and not for ours only but also for the whole world.
 
@@ -40,7 +40,7 @@ There is always forgiveness for sin confessed:
 
 
 ## The **Moral** Test:  Has my life changed? 
-> Now by this we know that we know Him, if we keep His commandments. He who says, "I know Him," and does not keep His commandments, is a liar, and the truth is not in him. But whoever keeps His word, truly the love of God is perfected in him. By this we know that we are in Him. He who says he abides in Him ought himself also to walk just as He walked.
+> 3: Now by this we know that we know Him, if we keep His commandments. He who says, "I know Him," and does not keep His commandments, is a liar, and the truth is not in him. But whoever keeps His word, truly the love of God is perfected in him. By this we know that we are in Him. He who says he abides in Him ought himself also to walk just as He walked.
 
 ### What is our attitude toward sin? 
   * 'Know' means to know in person here. It implies relationship  
@@ -107,11 +107,63 @@ This may seem easy, but what does that actually look like?
 * Love should be sacrificial, and Jesus love was un-deserved
 
 ## Are you Spiritually growing
+**Children**: 
+  * People who have experienced forgiveness of sins
+    * This is not age, but spiritual maturity
+    * > Children of christ verse
+    * Forgiveness is first experience
+    * Not because we 'feel, deserve' forgiveness, but 'For his names sake'
+    * This is not the end of the journey...
+    * In **verse 12**, 'Children' implies born as a descendant
+    * In **verse 14**, 'Children' implies infant, immature, suckling
+      * Under care of teachers
+      * Constantly growing
+      * Kids don't know much, but they finds comfort in Mom and Dad
+      * Lack discernment
+      * What helps Children grow? Food. (The bible important)
+      > 1 Peter 2: Like newborn babies, crave pure spiritual milk, so that by it you may grow up in your salvation
+      * So many Christians have stunted growth
+
+**Young Men**:
+* Are you a pushover? 
+* Do you constantly consent to sin? 
+* Paying attention to God's word and what it says about sin
+* The word of god 'Abides' in you. 
+  * You are going to approach situations with scripture
+* Mature Christians are bible literate
+* Do you love the Bible?
+* Overcome the devil, success over sin the wicked one
+
+
+**Fathers**:
+* People who are mature in their faith. 
+* I have known Jesus for a long time, and I know what the Bible says about Jesus
+* Some people have been a Christian for a long time, but now very little about Jesus
+> Philipians 3:10 I want to know Christ—yes, to know the power of his resurrection and participation in his sufferings, becoming like him in his death,
+* What did Paul want? To understand and comprehend who Jesus is more.
+* What's unique about a father? Capable of Reproduction by pointing others through Christ
+* > 1 Corinthians 4:14-16 I am writing this not to shame you but to warn you as my dear children. 15 Even if you had ten thousand guardians in Christ, you do not have many fathers, for in Christ Jesus I became your father through the gospel. 16 Therefore I urge you to imitate me.
+* A good parent confronts the child when he is at risk
+* The spiritually mature **Warn people about the truth**
+
+> You are writing a gospel, a chapter each day,
+by deeds that you do, by the words that you say.
+Men read what you write, whether faithless or true.
+Say, what is the gospel according to you?
+
+> You are writing each day a letter to men;
+take care that the writing is true,
+‘Tis the only gospel some men will read,
+the gospel according to you.
+
+  
+
   
 Questions:
-1. Has my life changed?
-2. Do I love the Lord and Others?
-3. Do I understand and lean on the truth as it's revealed in God's word? 
+1. Moral test: Has my life changed? Am I disgusted with sin?
+2. Do I love like Jesus did?
+3. Am a maturing in my spiritual walk?
+4. (Next week) Do I love God more than the world?
 
 
 
