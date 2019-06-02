@@ -110,7 +110,7 @@ This may seem easy, but what does that actually look like?
 **Children**: 
   * People who have experienced forgiveness of sins
     * This is not age, but spiritual maturity
-    * > Children of christ verse
+    * > Galatians 3:26 for in Christ Jesus you are all children of God through faith.
     * Forgiveness is first experience
     * Not because we 'feel, deserve' forgiveness, but 'For his names sake'
     * This is not the end of the journey...
