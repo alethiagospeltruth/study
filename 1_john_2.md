@@ -97,7 +97,7 @@ There is always forgiveness for sin confessed:
 > Ephesians 5:1-2: Therefore be imitators of God, as beloved children; 2 and walk in love, just as Christ also loved you and gave Himself up for us, an offering and a sacrifice to God as a fragrant aroma.
 
 * Read 1 Corinthians 13:1-13
-> 1 Corinthians 13:  If I speak in the tongues of men or of angels, but do not have love, I am only a resounding gong or a clanging cymbal
+> 1 Corinthians 13:  If I speak in the tongues of men or of angels, but do not have love, I am only a resounding gong or a clanging cymbal (read whole section)
 
 * Our relationships should be evidence of our relationship with God 
 * This test is simple: Do we love one another?
@@ -121,10 +121,20 @@ This may seem easy, but what does that actually look like?
       * Kids don't know much, but they finds comfort in Mom and Dad
       * Lack discernment
       * What helps Children grow? Food. (The bible important)
-      > 1 Peter 2: Like newborn babies, crave pure spiritual milk, so that by it you may grow up in your salvation
+      > 1 Peter 2:2 Like newborn babies, crave pure spiritual milk, so that by it you may grow up in your salvation, 3 now that you have tasted that the Lord is good.
       * So many Christians have stunted growth
+      > Matthew 4:4 But he answered, “It is written, “‘Man shall not live by bread alone, but by every word that comes from the mouth of God.’”
+
+
 
 **Young Men**:
+> 13b I am writing to you, young men,
+because you have overcome the evil one.
+
+> 14b I write to you, young men,
+    because you are strong,
+    and the word of God lives in you,
+    and you have overcome the evil one.
 * Are you a pushover? 
 * Do you constantly consent to sin? 
 * Paying attention to God's word and what it says about sin
@@ -136,12 +146,14 @@ This may seem easy, but what does that actually look like?
 
 
 **Fathers**:
+>13 I am writing to you, fathers,
+ because you know him who is from the beginning.
 * People who are mature in their faith. 
 * I have known Jesus for a long time, and I know what the Bible says about Jesus
 * Some people have been a Christian for a long time, but now very little about Jesus
-> Philipians 3:10 I want to know Christ—yes, to know the power of his resurrection and participation in his sufferings, becoming like him in his death,
+> Philipians 3:10 I want to know Christ—yes, to know the power of his resurrection and participation in his sufferings, becoming like him in his death, 11 and so, somehow, attaining to the resurrection from the dead.
 * What did Paul want? To understand and comprehend who Jesus is more.
-* What's unique about a father? Capable of Reproduction by pointing others through Christ
+* What's unique about a father? **Capable of Reproduction** by pointing others through Christ. (disciples that make disciples)
 * > 1 Corinthians 4:14-16 I am writing this not to shame you but to warn you as my dear children. 15 Even if you had ten thousand guardians in Christ, you do not have many fathers, for in Christ Jesus I became your father through the gospel. 16 Therefore I urge you to imitate me.
 * A good parent confronts the child when he is at risk
 * The spiritually mature **Warn people about the truth**
